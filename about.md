@@ -4,15 +4,8 @@ title: About
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
+Annard Brouwer has been traveling the world while working on- and offsite in different industries. He has been a passionate believer in solutions that last, with a stress on the human side to technology with an eye for privacy and security.
+In his personal life he has never shied away from ways to make his life more complicated, culminating in the purchase of a boat and trying to live on her. The goal was to move the world underneath me with my wordly belongings. So far this has caused weight and money loss and general frustration. It has also taught him a lot about boating and life in general.
 
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
-
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
-
-
-[jekyll-organization]: https://github.com/jekyll
+More professional information can be found on my [LinkedIn profile](http://www.linkedin.com/in/annard).
+**I am available for hire at this time!**
