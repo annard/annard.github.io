@@ -2,7 +2,7 @@
 layout: post
 title:  "Glasgow via Crinan Canal trip proposal"
 date: 2017-10-18 17:09:59 +0100
-categories: trip, boat
+categories: trip,boat
 ---
 This post describes the trip I am looking for crew for. So I am currently in Dunstaffnage Marina near Oban in Scotland. And I would like to go to [Bowling Harbour](http://www.clydewaterfront.com/clyde-heritage/bowling-harbour--old-kilpatrick/bowling-harbour) near Glasgow where I want to stay for the winter. I want to leave as soon as possible depending on the weather window being favourable.
 
