@@ -9,3 +9,5 @@ In his personal life he has never shied away from ways to make his life more com
 
 More professional information can be found on my [LinkedIn profile](http://www.linkedin.com/in/annard).
 **I am available for hire at this time!**
+
+![me myself and I](/images/me.jpg "Me, myself and I")
