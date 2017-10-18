@@ -6,7 +6,7 @@ categories: trip, boat
 ---
 This post describes the trip I am looking for crew for. So I am currently in Dunstaffnage Marina near Oban in Scotland. And I would like to go to [Bowling Harbour](http://www.clydewaterfront.com/clyde-heritage/bowling-harbour--old-kilpatrick/bowling-harbour) near Glasgow where I want to stay for the winter. I want to leave as soon as possible depending on the weather window being favourable.
 
-The reason I need crew for this trip is primarily for safety reasons but secondary for the [Crinan Canal](https://www.scottishcanals.co.uk/canals/crinan-canal/) where you need to open and close the locks and bridges yourselves. A lot of fun to be had for everyone!
+The reason I need 2 crew members for this trip is primarily for safety reasons but secondary for the [Crinan Canal](https://www.scottishcanals.co.uk/canals/crinan-canal/) where you need to open and close the locks and bridges yourselves. A lot of fun to be had for everyone!
 
 The sail to Crinan is the hardest because of tidal overflow areas around the [Gulf of Corryvreckan](https://en.wikipedia.org/wiki/Gulf_of_Corryvreckan). With the proper weather and tidal planning we should be able to navigate through this without too many troubles.
 
@@ -24,6 +24,7 @@ What does the boat look like you ask? Well, let's look at the exterior first:
 ![aft inside](/images/Oleander/Dunstaffnage/IMG_2671.jpg "cabin inside looking aft")
 ![vberth inside](/images/Oleander/Dunstaffnage/IMG_2672.jpg "cabin inside looking aft")
 
-We will sail with just the genoa and the engine, we can easily get there just by motoring if we have to. Contact me if you are interested and available within the next 2 weeks!
+We will sail with just the genoa and the engine, we can easily get there just by motoring if we have to. There are two comfortable berths available and we will have heating and plenty of food on board.
+Contact me if you are interested and available within the next 2 weeks!
 
 Fair winds!
