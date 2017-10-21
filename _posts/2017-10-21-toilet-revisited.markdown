@@ -35,4 +35,4 @@ Of course some smelly water leaked out of these plus some seawater from the othe
 
 Then I took advantage of the fact that the boat wa out and add some more anti-fouling on the propellor and rope cutter.
 
-Since it is a bit of a mess inside the boat and I want to have it all drying out overnight with the heater on, I took the offer from the Wide Mouth Frog owner to use one of his rooms tonight (see ["Bartering"](/blog/bartering)). Tomorrow I will put the toilet back together again so that Monday, when hopefully all is well, I can connect the hoses to the outside and use the toilet again (on a dry boat?).
+Since it is a bit of a mess inside the boat and I want to have it all drying out overnight with the heater on, I took the offer from the [Wide Mouthed Frog](http://www.widemouthedfrogofficialsite.co.uk) owner to use one of his rooms tonight (see ["Bartering"](/blog/bartering)). Tomorrow I will put the toilet back together again so that Monday, when hopefully all is well, I can connect the hoses to the outside and use the toilet again (on a dry boat?).
