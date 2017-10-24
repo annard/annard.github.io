@@ -1,0 +1,21 @@
+---
+layout: post
+title:  "Toilet Frustration"
+date: 2017-10-23 17:45:00 +0100
+categories: boat
+---
+Last night I slept on the boat again because most of the toilet had been reassembled. Of course that didn't go as planned. Things never do on Oleander. Let's dive into some sweet-smelling details?
+
+First off on Sunday morning I woke up in a real bed again. Next I went to [Whetherspoons](https://en.wikipedia.org/wiki/Wetherspoons) in Oban with Dave, a sailing friend who also lives on his boat, for brunch. I ordered poached eggs on toasted muffin with haggis and hollandaise sauce. Not too bad and not too big unlike the regular Scottish breaky!
+
+When I got back to the boat I set about to install the new sewage hose that was just a short one without an anti-siphon as recommended by the local experts. However, given how the seat is located I needed to make a twist with this hose that made it almost impossible to connect to the seacock. So I asked Dave (from brunch) for some assistance since he has worked a lot of boats of all sizes. Basically I needed to put back the old [anti-siphon system](http://myboatsgear.com/2016/12/26/vented-loops/) with new hoses. Dave was so friendly to take apart and clean the salt deposits and helped me put the whole thing back in the boat. I didn't assemble the whole thing because I was not sure if the seacocks would be dry when the boat got back in the water. Not putting the toilet hoses on them would allow me for a quick fix the next morning! (As you can see I'm not cocky anymore about my repairs.)
+
+So this morning hen the boat went back into the water, all went well with the seacocks. They stayed very dry! Now back at the berth I could finalise the assembly of the toilet. But there was a snag... The sewage hose didn;t fit on the hosetail anymore. This was a different kind of hose and less flexible. The shop where I could exchange this new hosetail was closed for the next two days but I wanted to use my toilet! Fortunately there is another chandlery here where I just bought a fitting one (of lesser quality) but I couldn't wait. So after cutting my hand and fingers and much swearing and cursing in the morning the whole thing was finally working. Or was it? When I pumped in water to flush the toilet, then try to pump it out, things stopped working because I had created some kind of vacuum. And the joker valve connection was leaking.
+
+<img src="https://68.media.tumblr.com/07a1a37fcb83ba74457bc12c9445f055/tumblr_mr6s17NyNs1rxlgn6o1_500.gif"/>
+
+At this point I had become very depressed and thoroughly started to dislike everything regarding my current life. Because I also forget to mention that another friend who kindly offered to sail with me had gotten ill.
+
+**Will I ever get away from here?**
+
+*zootlewurdle zootlewurdle  zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle zootlewurdle*
