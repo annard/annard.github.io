@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Toilet Frustration"
+title: "Toilet Frustration"
 date: 2017-10-23 17:45:00 +0100
 categories: boat
 ---
