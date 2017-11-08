@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Waiting for other people"
-date: 2017-11-3 17:00:00 +0100
+date: 2017-11-3 17:00:00 +0000
 categories: boat
 ---
 Are you ready to read the next exciting installment on how Annard survives on his boat? It took him more than a week to get to the point of writing it, so it must be an awfully a.w.e.s.o.m.e episode!
