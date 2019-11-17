@@ -40,7 +40,7 @@ navigation:
    url: /contact
 
 social:
-  twitter: realannard
+  linkedin: annard
   github: annard
   email: annard@mac.com
 
@@ -49,6 +49,7 @@ social:
 # to override the default setting.
 exclude:
   - .hyde.el
+  - .rvmrc
 #   - Gemfile
 #   - Gemfile.lock
 #   - node_modules
