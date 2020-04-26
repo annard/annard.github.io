@@ -1,3 +1,3 @@
 # Personal blog site
 
-Go to (blog.annard.net)[http://blog.annard.net]
+Go to [blog.annard.net](http://blog.annard.net)
